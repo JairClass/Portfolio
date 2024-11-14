@@ -1,2 +1,2 @@
-# Porfólio (NÃO FINALIZADO AINDA...)
+# Portfólio (NÃO FINALIZADO AINDA...)
  Meu portfólio profissional.
